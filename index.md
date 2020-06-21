@@ -1,5 +1,4 @@
 |[Home](https://dallam1.github.io/)|[Documents](https://github.com/)|[Gallery](https://github.com/)|[Contact](https://github.com/)|
-|---|---|---|---|
 
 ## Dallam 1 2020 Virtual Venture
 
