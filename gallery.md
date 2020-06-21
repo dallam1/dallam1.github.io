@@ -2,4 +2,4 @@
 
 # Gallery
 
-Have you sent in your photo challenges? We'll showcase them here!
+Have you sent in your photo challenges? We'll showcase them [here](https://dallam1.github.io/gallerytest)!
