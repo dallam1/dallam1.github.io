@@ -2,7 +2,7 @@
 
 Due to the exceptional circumstances surrounding COVID-19, CPAS made the difficult decision to cancel all residential Ventures this summer.
 
-However, we are excited to offer you the opportunity to be involved in Dallam 1 Virtual Venture.
+However, we are excited to offer you the opportunity to be involved in the inaugural Dallam 1 Virtual Venture.
 
 ### Markdown
 
