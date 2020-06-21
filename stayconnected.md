@@ -2,3 +2,10 @@
 
 # Stay Connected
 
+[Twitter](https://twitter.com/dallam1cpas)
+
+[Instagram](https://www.instagram.com/dallam1cpas/)
+
+[Facebook](https://www.facebook.com/groups/dallam1)
+
+[YouTube](https://www.youtube.com/channel/UCtuoiH_Q1N0NPSMMSbiTKbA)
