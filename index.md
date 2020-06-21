@@ -1,8 +1,8 @@
 ## Welcome to Dallam 1 2020 Virtual Ventures
 
-You can use the [editor on GitHub](https://github.com/dallam1/dallam1.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+Due to the exceptional circumstances surrounding COVID-19, CPAS made the difficult decision to cancel all residential Ventures this summer.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+However, we are excited to offer you the opportunity to be involved in Dallam 1 Virtual Venture.
 
 ### Markdown
 
