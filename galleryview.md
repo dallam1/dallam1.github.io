@@ -2,3 +2,7 @@
 
 # Gallery View
 
+Welcome to the Dallam 1 2020 Virtual Venture Gallery. 
+
+|[Gallery Test Photos](https://dallam1.github.io/gallerytest)|
+
