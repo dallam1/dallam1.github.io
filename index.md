@@ -1,8 +1,10 @@
-|[Home](https://dallam1.github.io/)|[Documents](https://dallam1.github.io/documents)|[Gallery](https://dallam1.github.io/gallery)|[Archive](https://dallam1.github.io/archive)|[Contact](https://dallam1.github.io/contact)|
+|[Home](https://dallam1.github.io/)|[Documents](https://dallam1.github.io/documents)|[Gallery](https://dallam1.github.io/gallery)|[Archive](https://dallam1.github.io/archive)|[Contact](https://dallam1.github.io/contact)|[Stay Connected]()|
 
 ## Dallam 1 2020 Virtual Venture
 
-Welcome to Dallam 1 2020 Virtual Venture.
+### Update 21st June 2020
+
+Welcome to the Dallam 1 2020 Virtual Venture.
 
 Due to the exceptional circumstances surrounding COVID-19, CPAS made the difficult decision to cancel all residential Ventures this summer.
 
