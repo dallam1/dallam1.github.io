@@ -4,7 +4,9 @@ Due to the exceptional circumstances surrounding COVID-19, CPAS made the difficu
 
 However, we are excited to offer you the opportunity to be involved in the inaugural Dallam 1 Virtual Venture. From Tuesday 4th to Thursday 6th August (during the week we would all have been at Dallam), we will be offering a variety of live and pre-recorded opportunities for you to join in with, via Zoom and YouTube. More details on this to be released soon.
 
-### Markdown
+### Stay In Touch
+
+[Facebook](https://www.facebook.com/groups/dallam1)
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
