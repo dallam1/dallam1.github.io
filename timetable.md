@@ -2,3 +2,8 @@
 
 # Timetable
 
+| Day\Session | Daytime | Evening |
+| ----------- | ------- | ------- |
+| Tues 4th    |
+| Wed 5th     |
+| Thurs 6th   |
