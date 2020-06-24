@@ -6,7 +6,7 @@ Stay connected to Dallam 1 using our social media channels, and don't forget to 
 
 [Twitter](https://twitter.com/dallam1cpas)
 
-[Instagram](https://www.instagram.com/dallam1cpas/)
+![](https://www.dropbox.com/s/zkrrn6r9ep8d7wi/d1%20insta.jpg?dl=0 | width=100) [Instagram](https://www.instagram.com/dallam1cpas/)
 
 [Facebook](https://www.facebook.com/groups/dallam1)
 
