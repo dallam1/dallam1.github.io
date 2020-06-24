@@ -2,6 +2,8 @@
 
 # Stay Connected
 
+Stay connected to Dallam 1 using our social media channels, and don't forget to use the hashtag #dallam1
+
 [Twitter](https://twitter.com/dallam1cpas)
 
 [Instagram](https://www.instagram.com/dallam1cpas/)
