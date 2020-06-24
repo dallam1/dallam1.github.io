@@ -2,4 +2,8 @@
 
 # Video Archive
 
-Missed any of our video content? Catch up here!
+Missed any of our video content?
+
+Catch up on our [YouTube](https://dallam1.github.io/youtube) sessions.
+
+And if you are a member, you can access our [Zoom](https://dallam1.github.io/zoom) recordings too.
