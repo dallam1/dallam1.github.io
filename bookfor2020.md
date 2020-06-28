@@ -2,4 +2,4 @@
 
 # Bookings
 
-Bookings are now open for Dallam 1 2020 Virtual Venture. If you had previously booked on to the full residential, then you will have been sent information to sign up for our virtual events. If you hadn't previously booked on, then you can access the booking form [here]().
+Bookings are now open for Dallam 1 2020 Virtual Venture. Please complete the booking and permission form [here]().
