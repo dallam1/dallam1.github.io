@@ -2,6 +2,12 @@
 
 ## Dallam 1 2020 Virtual Venture
 
+### Update 29th June 2020
+
+Coming soon to a device near you...
+
+![ventures youtube vid](https://user-images.githubusercontent.com/67221785/85999681-6a0b9180-ba04-11ea-826a-e88af501dcdf.JPG)(https://youtu.be/oSfaxl4ReP8)
+
 ### Update 21st June 2020
 
 Welcome to the Dallam 1 2020 Virtual Venture.
