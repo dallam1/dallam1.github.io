@@ -2,6 +2,10 @@
 
 ## Updates
 
+### Update 29th June 2020
+
+Coming soon to a device near you...[read more](https://dallam1.github.io/update29thjune2020)
+
 ### Update 21st June 2020
 
 Welcome to the Dallam 1 2020 Virtual Venture.
