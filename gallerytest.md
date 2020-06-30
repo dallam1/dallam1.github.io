@@ -9,3 +9,5 @@ Get God Praising
 
 Climbing
 ![IMG-20180805-WA0018](https://user-images.githubusercontent.com/67221785/85921710-094e4e80-b876-11ea-8002-eb0f56d086b1.jpg)
+
+<img src="https://user-images.githubusercontent.com/67221785/85921710-094e4e80-b876-11ea-8002-eb0f56d086b1.jpg" width="200"> <img src="https://user-images.githubusercontent.com/67221785/85921710-094e4e80-b876-11ea-8002-eb0f56d086b1.jpg" width="200">
