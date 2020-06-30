@@ -2,6 +2,6 @@
 
 # Videos - members only
 
-Click [here for our YouTube](https://dallam1.github.io/youtube) videos and sessions.
+Click [here for our YouTube](https://jstrieb.github.io/link-lock/#eyJ2IjoiMC4wLjEiLCJlIjoidVZ0M2JhWEZZdWxzaHY5TmN5Y3I1UXlxc3ZvMkVYVWE0ZFVuRVhrbXg3Y2pqbmlwaVB6T2w0cEJETGFwSlBoWUF3PT0iLCJpIjoiRnphd3pxT0ZNWGtDS3AzSCJ9) videos and sessions.
 
 
