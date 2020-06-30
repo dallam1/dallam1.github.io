@@ -4,6 +4,6 @@
 
 | Day\Session | Daytime | Evening |
 | ----------- | ------- | ------- |
-| Tues 4th    | 10am YouTube
-| Wed 5th     | 10am YouTube
-| Thurs 6th   |
+| Tues 4th    | 10am YouTube | 7.30pm Live Zoom |
+| Wed 5th     | 10am YouTube | 7.30pm Live Zoom |
+| Thurs 6th   | 10am YouTube | 7.30pm Live Zoom |
