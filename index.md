@@ -16,7 +16,7 @@ Welcome to the Dallam 1 2020 Virtual Venture.
 
 Due to the exceptional circumstances surrounding COVID-19, CPAS made the difficult decision to cancel all residential Ventures this summer.
 
-However, we are excited to offer you the opportunity to be involved in the inaugural Dallam 1 Virtual Venture. From Tuesday 4th to Thursday 6th August (during the week we would all have been at Dallam), we will be offering a variety of live and pre-recorded opportunities for you to join in with, via Zoom and YouTube. More details on all of this to be released very soon, but also make sure you subscribe to our [YouTube channel](https://www.youtube.com/channel/UCtuoiH_Q1N0NPSMMSbiTKbA).
+However, we are excited to offer you the opportunity to be involved in the inaugural Dallam 1 Virtual Venture. From Tuesday 4th to Thursday 6th August (during the week we would all have been at Dallam), we will be offering a variety of live and pre-recorded opportunities for you to join in with, via Zoom and YouTube. More details, including how to book, on all of this to be released very soon.
 
 ### Stay Connected
 
@@ -26,7 +26,6 @@ However, we are excited to offer you the opportunity to be involved in the inaug
 
 [![fb 25x25](https://user-images.githubusercontent.com/67221785/85921617-45cd7a80-b875-11ea-9341-fc80910b18e4.jpg)](https://www.facebook.com/groups/dallam1) [Facebook](https://www.facebook.com/groups/dallam1)
 
-[![youtube 25x15](https://user-images.githubusercontent.com/67221785/85921613-4108c680-b875-11ea-884e-26c6b12abd0f.jpg)](https://www.youtube.com/channel/UCtuoiH_Q1N0NPSMMSbiTKbA) [YouTube](https://www.youtube.com/channel/UCtuoiH_Q1N0NPSMMSbiTKbA)
 
 
 
