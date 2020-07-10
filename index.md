@@ -2,21 +2,13 @@
 
 ## Dallam 1 2020 Virtual Venture
 
-### Update 29th June 2020
+### Update 10th July 2020
 
-Coming soon to a device near you...
+# Bookings
 
-[![ventures youtube vid](https://user-images.githubusercontent.com/67221785/85999681-6a0b9180-ba04-11ea-826a-e88af501dcdf.JPG)](https://youtu.be/oSfaxl4ReP8)
+Bookings are now open for Dallam 1 2020 Virtual Venture. We will need you to be booked on to participate in our live virtual sessions. Please complete the booking and permission form [here](https://cpasventures.brushfire.com/events/471465).
 
-We are looking at running a series of pre-recorded YouTube videos and live Zoom meetings over the Dallam 1 Virtual Venture. We are finalinsg how you can book on to be a part of the live meeintgs and a more detailed theme and running order will be available soon.
-
-### Update 21st June 2020
-
-Welcome to the Dallam 1 2020 Virtual Venture.
-
-Due to the exceptional circumstances surrounding COVID-19, CPAS made the difficult decision to cancel all residential Ventures this summer.
-
-However, we are excited to offer you the opportunity to be involved in the inaugural Dallam 1 Virtual Venture. From Tuesday 4th to Thursday 6th August (during the week we would all have been at Dallam), we will be offering a variety of live and pre-recorded opportunities for you to join in with, via Zoom and YouTube. More details, including how to book, on all of this to be released very soon.
+You still need to complete this form even if you had already signed up for the full residential.
 
 ### Stay Connected
 
