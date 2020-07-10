@@ -2,6 +2,12 @@
 
 ## Updates
 
+### Update 10th July 2020
+
+# Bookings
+
+Bookings are now open for Dallam 1 2020 Virtual Venture. We will need you to be booked on to participate in our live virtual sessions... [read more](https://dallam1.github.io/bookfor2020)
+
 ### Update 29th June 2020
 
 Coming soon to a device near you...[read more](https://dallam1.github.io/update29thjune2020)
