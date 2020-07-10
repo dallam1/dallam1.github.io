@@ -6,7 +6,7 @@
 
 # Bookings
 
-Bookings are now open for Dallam 1 2020 Virtual Venture. We will need you to be booked on to participate in our live virtual sessions... [read more](https://dallam1.github.io/bookfor2020)
+Bookings are now open for Dallam Wherever You Are, our virtual venture for 2020. We will need you to be booked on to participate in our live virtual sessions... [read more](https://dallam1.github.io/bookfor2020)
 
 ### Update 29th June 2020
 
