@@ -2,7 +2,7 @@
 
 # Resources
 
-Check out our virtual leaderboard to see who the leaders are and how they have found lockdown
+Check out our [virtual leaderboard](https://dallam1.github.io/leaderboard) to see who the leaders are and how they have found lockdown.
 
 Any document or paperwork you need to access before or during Dallam 1 2020 will be available here.
 
