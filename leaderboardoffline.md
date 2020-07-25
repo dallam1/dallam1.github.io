@@ -43,6 +43,8 @@ Rachel Gannon
 
 Ruth Stewart
 
+<img src="https://www.dropbox.com/s/sr3gsrvuzlc2b9q/ruth.jpg?raw=1" width="600">
+
 Sandra Hall
 
 Sarah Williams
