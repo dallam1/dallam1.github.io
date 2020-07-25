@@ -39,6 +39,9 @@ Phil and Anna Tigg
 
 Rachel Gannon
 
+<img src="https://www.dropbox.com/s/qmzp7afvluocpym/rachie.png?raw=1" width="300"> | Hi, I’m Rachel Gannon, I have been coming to this Venture for many years, and it is part of me and has shaped who I am as a Christian.  My first year was 1989 and the Venture has seen many changes since then, in both location and people serving on the team but God has remained ever constant and faithful to us as a Venture. For my day job, I work as an Administrator for a mental health charity called The Cellar Trust. Lockdown High: I’ve enjoyed the pace of life being slower and the time I have spent at home. Lockdown Low: Time away from seeing family and friends has been hard. Zoom time has been useful to stay in touch but it doesn’t compare with meeting up face-to-face. What is God saying?   A verse that I have clung on to recently is from Psalm 73 verse 23. “Yet I am always with you; you hold me by your right hand”. Our Minister at church preached on this and said.. “We are IN HIS GRIP”.  How amazing is that! 
+
+
 Ruth Stewart
 
 Sandra Hall
