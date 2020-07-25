@@ -6,6 +6,10 @@ Andrena Palmer
 
 <img src="https://www.dropbox.com/s/6aam6j9gxg5hkey/andrena.jpg?raw=1" width="600">
 
+Andrew Lorimer
+
+<img src="https://www.dropbox.com/s/s6jyylrxkpdupow/andrew%20and%20hattie.jpg?raw=1" width="600">
+
 Emma and Edd Greenfield
 
 <img src="https://www.dropbox.com/s/dlz37nbq7aslqob/emma%20and%20edd.jpg?raw=1" width="600"> | Hi, we're the Greenfields, Emma, Edd and Isaac. We've spent most of lockdown chasing around Isaac who has now started to crawl! Our lockdown high has been all the time we have been able to spend together as a family! We have found not being able to see friends and family really hard and it has definitely been our lock down low.
