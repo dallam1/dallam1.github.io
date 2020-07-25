@@ -9,7 +9,7 @@ Andrena Palmer
 
 Andrew Lorimer
 
-<img src="https://www.dropbox.com/s/s6jyylrxkpdupow/andrew%20and%20hattie.jpg?raw=1" width="600"> | Lockdown high: spending time in the beautiful Yorkshire outdoors exploring areas on our doorstep. Lockdown low: not being able to spend as much time with family to face to face.
+<img src="https://www.dropbox.com/s/s6jyylrxkpdupow/andrew%20and%20hattie.jpg?raw=1" width="300"> | Lockdown high: spending time in the beautiful Yorkshire outdoors exploring areas on our doorstep. Lockdown low: not being able to spend as much time with family to face to face.
 
 
 Emma and Edd Greenfield
