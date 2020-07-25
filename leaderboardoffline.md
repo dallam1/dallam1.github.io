@@ -49,7 +49,11 @@ Sandra Hall
 
 Sarah Williams
 
+<img src="https://www.dropbox.com/s/gqdm3sa50hhn5qf/sarah%20w.jpg?raw=1" width="600">
+
 Sid Rees
+
+<img src="https://www.dropbox.com/s/phgb1ouw1w9zg9n/sid.jpg?raw=1" width="600">
 
 
 
