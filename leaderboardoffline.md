@@ -36,5 +36,15 @@ Ollie Greenfield
 <img src="https://www.dropbox.com/s/7jf6z1b9nvqaxfg/ollie.jpg?raw=1" width="600"> Lockdown High: Nothing can get in the way and stop our desire to stand up for what is right. I have been so encouraged to witness the BLM movement that has been so vocal even in lockdown times, and the change it has already begun to make in our society.
 Also, Liverpool winning the league for the first time in 30 years has been a great lockdown high!!! YNWA! Lockdown Low: One of the hardest things this lockdown has been the separation from my new nephew, Isaac. He has nearly doubled in age since lockdown began! Seeing pictures and videos has been great, and occasional visits does help, but not being able to hold him and play with him has been hard. What God has been saying?  Over lockdown I have felt God saying that we are not alone. Which seems ironic considering that we have literally been separated from most people in our lives. But actually God is right, shocking I know! I have been reminded of how many people are still around me and contactable even if I can’t see them in person. But more importantly, God has kept reminding me that He is still around. There is so much over lockdown happening, getting used to a new way of living, new distractions around. It has been easier than ever for me to forget God. But thankfully, God has not forgotten me.
 
+Phil and Anna Tigg
+
+Rachel Gannon
+
+Ruth Stewart
+
+Sarah Williams
+
+Sid Rees
+
 
 
