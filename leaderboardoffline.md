@@ -21,7 +21,7 @@ Emma and Edd Greenfield
 
 Hattie Griggs
 
-<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="600"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
+<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="300"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
 
 
 
