@@ -13,7 +13,7 @@ Andrew Lorimer
 
 Carol Stewart
 
-<img src="https://www.dropbox.com/s/jui4x39rdp3broy/carol.png?raw=1" width="600"> | My Lockdown High – we are fortunate to live in the country and the spring was amazing, both in what we could see and in what we could hear, when the traffic largely disappeared. We have a lot of blackbirds around and their singing was amazing. God’s world is amazing! My Lockdown Low – having to cancel ‘real’ Dallam – I enjoy the Dallam week so much each year. Also seeing the effect of lockdown on my Daughter, Jane, who has ME and whom we care for. Somehow her isolation has been particularly hard to bear, even though it’s pretty well normal for her all the time. What has God been saying? – I’m here for you.
+<img src="https://www.dropbox.com/s/jui4x39rdp3broy/carol.png?raw=1" width="900"> | My Lockdown High – we are fortunate to live in the country and the spring was amazing, both in what we could see and in what we could hear, when the traffic largely disappeared. We have a lot of blackbirds around and their singing was amazing. God’s world is amazing! My Lockdown Low – having to cancel ‘real’ Dallam – I enjoy the Dallam week so much each year. Also seeing the effect of lockdown on my Daughter, Jane, who has ME and whom we care for. Somehow her isolation has been particularly hard to bear, even though it’s pretty well normal for her all the time. What has God been saying? – I’m here for you.
 
 Emma and Edd Greenfield
 
