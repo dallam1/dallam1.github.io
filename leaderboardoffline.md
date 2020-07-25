@@ -19,4 +19,9 @@ Emma and Edd Greenfield
 
 <img src="https://www.dropbox.com/s/dlz37nbq7aslqob/emma%20and%20edd.jpg?raw=1" width="600"> | Hi, we're the Greenfields, Emma, Edd and Isaac. We've spent most of lockdown chasing around Isaac who has now started to crawl! Our lockdown high has been all the time we have been able to spend together as a family! We have found not being able to see friends and family really hard and it has definitely been our lock down low.
 
+Hattie Griggs
+
+<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="600"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
+
+
 
