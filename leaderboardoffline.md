@@ -47,6 +47,8 @@ Ruth Stewart
 
 Sandra Hall
 
+<img src="https://www.dropbox.com/s/30hslyun0iw335l/sandra.jpg?raw=1" width="600">
+
 Sarah Williams
 
 <img src="https://www.dropbox.com/s/gqdm3sa50hhn5qf/sarah%20w.jpg?raw=1" width="600">
