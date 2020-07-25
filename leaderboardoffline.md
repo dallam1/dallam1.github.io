@@ -29,5 +29,6 @@ Jack Bacon
 
 Jenny Warrington
 
-<img src="https://www.dropbox.com/s/3k6iw2ewpva64bq/jenny.jpg?raw=1" width="600"> | 
+<img src="https://www.dropbox.com/s/3k6iw2ewpva64bq/jenny.jpg?raw=1" width="600"> | I’m Jenny Warrington and I became the curate at All Saints Church in Chatham last October having been a GP for 25 years. Lockdown high: Really enjoyed getting to know people on video calls that I’ve not talked to in depth before. Lockdown low: Not seeing our son and daughter and especially our new grandson. Missing hugs.
+
 
