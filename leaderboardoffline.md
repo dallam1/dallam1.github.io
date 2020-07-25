@@ -43,7 +43,7 @@ Rachel Gannon
 
 Ruth Stewart
 
-<img src="https://www.dropbox.com/s/zf1t4owri13jsv8/ruth2.jpg?raw=1" width="600">
+<img src="https://www.dropbox.com/s/zf1t4owri13jsv8/ruth2.jpg?raw=1" width="600"> | Hello I'm Ruth Stewart (sister of David and Karen, aunt to Elodie and Finn, and daughter of Carol). I've been involved in the Venture for a very long time and love it a lot. Ventures were crucial to my faith when I was younger, and they’ve always been a highlight of my summer.  I consider many of the others involved my extended family! In between times I'm a teacher in Hounslow and live in Twickenham. I teach French and Spanish and run D of E at my school. Lockdown high: A slower pace of life, lots of time for gardening, reading and TV – Lockdown low:
 
 Sandra Hall
 
