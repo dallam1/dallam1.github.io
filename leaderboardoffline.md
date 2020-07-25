@@ -27,5 +27,7 @@ Jack Bacon
 
 <img src="https://www.dropbox.com/s/gr7zot5v5pitows/jack.jpg?raw=1" width="1200"> | Hi, my name is Jack and I’m thrilled to be helping out with Dallam this year, odd as it may be! I’ve been part of this Venture for a decade now, first as a member, then as a helper and now as a leader. I’m really looking forward to getting to know God with everyone in a different way this year. In my day job I work in communications for the Diocese of Leeds, who support lots of churches in West Yorkshire and the Dales. My lockdown high has been helping out with my church’s music in this time, providing drums for songs we have recorded and put together. It’s been great fun, and helped me improve my drumming, which I’ve really enjoyed! My lockdown low has been the inability to see people- I’m quite a social person, so not being able to hang out with my friends in the nice weather has been a bit demoralising. What is God saying? The Bible passage that has really spoken to me during this time has been Luke 4: 1-13, about Jesus in the wilderness. I’ll be talking about why this week!
 
+Jenny Warrington
 
+<img src="https://www.dropbox.com/s/3k6iw2ewpva64bq/jenny.jpg?raw=1" width="600" | 
 
