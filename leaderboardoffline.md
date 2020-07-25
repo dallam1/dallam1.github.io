@@ -47,7 +47,8 @@ Ruth Stewart
 
 Sandra Hall
 
-<img src="https://www.dropbox.com/s/30hslyun0iw335l/sandra.jpg?raw=1" width="600">
+<img src="https://www.dropbox.com/s/30hslyun0iw335l/sandra.jpg?raw=1" width="600"> | Lockdown high: More space, no crowds, quieter roads, hearing the birds and seeing more insects. Lockdown low: Not being able to have face to face meetings with other people, too much time online. What I think God is saying in this time: The word equity has come to my attention a few times during recent months, both from scripture and other sources. I think God is giving the world an opportunity, as we reflect on the pandemic and the issues which it has raised, to make significant changes in our values. There is an urgent need to address the issues of poverty, deprivation, injustice, racism, hatred, prejudice and hopelessness. Human beings are created in God’s image and are all of equal value. In all societies, human lives should be placed at the highest value, way above wealth and power.
+
 
 Sarah Williams
 
