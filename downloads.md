@@ -11,3 +11,5 @@ Try your hand at these themed wordsearches:
 [Meals wordsearch](https://www.dropbox.com/s/nnfg6w8lzj532vn/Dallam%20Wednesday%20Word%20Search.pdf?dl=0)
   
 [Things God gives to us wordsearch](https://www.dropbox.com/s/nnfg6w8lzj532vn/Dallam%20Wednesday%20Word%20Search.pdf?dl=0)
+
+More resources coming soon...
