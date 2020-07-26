@@ -4,7 +4,7 @@
 
 ### Meet Jesus; see God!
 
-<img src="https://www.dropbox.com/s/3mpype869ppnhen/logo%20idea%20v3.jpg?raw=1" width="600" align="center">
+<img src="https://www.dropbox.com/s/j9df07rg2zf867w/logo%20idea%20v3x.jpg?raw=1" width="600" align="center">
 
 ### Update 10th July 2020
 
