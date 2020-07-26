@@ -3,3 +3,5 @@
 # Downloadable Resources
 
 Coming soon...
+
+Show us your creative side with these [colouring pages](https://www.dropbox.com/s/hbshkbd5max4am8/Colouring.pdf?dl=0)
