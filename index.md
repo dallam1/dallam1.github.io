@@ -2,6 +2,8 @@
 
 ## Dallam Wherever You Are
 
+<img src="https://www.dropbox.com/s/3mpype869ppnhen/logo%20idea%20v3.jpg?raw=1" align="center">
+
 ### Update 10th July 2020
 
 # Bookings
