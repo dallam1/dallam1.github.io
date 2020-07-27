@@ -2,11 +2,17 @@
 
 # YouTube
 
+#Get God
+
 We'll shortly be uploading content for Dallam Wherever You Are...
 
-...but while we must keep you waiting a little bit longer for that...
+#DallamDale
 
-...please enjoy some vintage DallamDale featuring Holly and Ivy from 2018 and 2019:
+Take a look right here at the trailer for [DallamDale Season 3](https://youtu.be/_WT2P0dGVg4)
+
+DallamDale Season 3 Episode 1 - Coming Soon
+
+...and do enjoy some vintage DallamDale featuring Holly and Ivy from 2018 and 2019:
 
 [DallamDale Season 1 Episode 1](https://youtu.be/PsENUP4uT48)
 
@@ -20,4 +26,3 @@ We'll shortly be uploading content for Dallam Wherever You Are...
 
 [DallamDale Season 2 Episode 4](https://youtu.be/A1u8w_qWDEw)
 
-And take a look right here at the trailer for [DallamDale Season 3](https://youtu.be/_WT2P0dGVg4)
