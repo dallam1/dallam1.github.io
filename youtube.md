@@ -2,11 +2,11 @@
 
 # YouTube
 
-#Get God
+# Get God
 
 We'll shortly be uploading content for Dallam Wherever You Are...
 
-#DallamDale
+# DallamDale
 
 Take a look right here at the trailer for [DallamDale Season 3](https://youtu.be/_WT2P0dGVg4)
 
