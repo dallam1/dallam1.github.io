@@ -37,7 +37,7 @@ Ollie Greenfield
 
 Phil and Anna Tigg
 
-<img src="https://www.dropbox.com/s/50lucfcf6ut7jq9/phil%20and%20anna.jpg?raw=1" width="600"> | Hi, we're Phil and Anna and these are our girls, Alex and Natasha. Lockdown high: Spending more time together as a family. Lockdown low: not being able to see friends and family.
+<img src="https://www.dropbox.com/s/50lucfcf6ut7jq9/phil%20and%20anna.jpg?raw=1" width="450"> | Hi, we're Phil and Anna and these are our girls, Alex and Natasha. Lockdown high: Spending more time together as a family. Lockdown low: not being able to see friends and family.
 
 Rachel Gannon
 
