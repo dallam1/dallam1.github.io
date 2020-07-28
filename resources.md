@@ -2,7 +2,7 @@
 
 # Resources
 
-Check out our [virtual leaderboard](https://dallam1.github.io/leaderboard) to see who the leaders are and how they have found lockdown.
+Check out our [virtual leader board](https://dallam1.github.io/leadersboard) to see who the leaders are and how they have found lockdown.
 
 Downloadable resources for the week will be [available here](https://dallam1.github.io/downloads).
 
