@@ -17,7 +17,7 @@ Carol Stewart
 
 Cassie Beeson
 
-<img src="https://www.dropbox.com/s/hss19a01vt1v9eg/cassie%20v2.JPG?dl=0" width=600"> Hello I'm Cassie. I had many Lockdown Highs; so much sleeping! Eating a lot of guilty pleasure food without anyone around to judge me. Time with my Cats, and starting the quilt project I've been intending to do for ages. Lockdown low; the worship pastor at my church is moving on to train to be a vicar, and instead of making the most of the short time we have left with him, we've been online. Goodbye zoom meetings with provide your own cakes aren't cutting the mustard. I felt that God was saying to me that he makes his joy accessible to us even through the trickiest of times. 
+<img src="https://www.dropbox.com/s/ekuu0vy1a3rha8u/cassie%20v4.jpg?dl=0" width=600"> Hello I'm Cassie. I had many Lockdown Highs; so much sleeping! Eating a lot of guilty pleasure food without anyone around to judge me. Time with my Cats, and starting the quilt project I've been intending to do for ages. Lockdown low; the worship pastor at my church is moving on to train to be a vicar, and instead of making the most of the short time we have left with him, we've been online. Goodbye zoom meetings with provide your own cakes aren't cutting the mustard. I felt that God was saying to me that he makes his joy accessible to us even through the trickiest of times. 
 
 Emma and Edd Greenfield
 
