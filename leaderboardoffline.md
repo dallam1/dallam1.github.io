@@ -15,6 +15,10 @@ Carol Stewart
 
 <img src="https://www.dropbox.com/s/jui4x39rdp3broy/carol.png?raw=1" width="1400"> | My Lockdown High – we are fortunate to live in the country and the spring was amazing, both in what we could see and in what we could hear, when the traffic largely disappeared. We have a lot of blackbirds around and their singing was amazing. God’s world is amazing! My Lockdown Low – having to cancel ‘real’ Dallam – I enjoy the Dallam week so much each year. Also seeing the effect of lockdown on my Daughter, Jane, who has ME and whom we care for. Somehow her isolation has been particularly hard to bear, even though it’s pretty well normal for her all the time. What has God been saying? – I’m here for you.
 
+Cassie Beeson
+
+<img src="https://www.dropbox.com/s/hlzphoitrwizpyc/cassie.JPG?raw=1" width=600"> Hello I'm Cassie. I had many Lockdown Highs; so much sleeping! Eating a lot of guilty pleasure food without anyone around to judge me. Time with my Cats, and starting the quilt project I've been intending to do for ages. Lockdown low; the worship pastor at my church is moving on to train to be a vicar, and instead of making the most of the short time we have left with him, we've been online. Goodbye zoom meetings with provide your own cakes aren't cutting the mustard. I felt that God was saying to me that he makes his joy accessible to us even through the trickiest of times. 
+
 Emma and Edd Greenfield
 
 <img src="https://www.dropbox.com/s/dlz37nbq7aslqob/emma%20and%20edd.jpg?raw=1" width="600"> | Hi, we're the Greenfields, Emma, Edd and Isaac. We've spent most of lockdown chasing around Isaac who has now started to crawl! Our lockdown high has been all the time we have been able to spend together as a family! We have found not being able to see friends and family really hard and it has definitely been our lock down low.
