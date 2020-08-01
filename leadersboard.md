@@ -19,6 +19,10 @@ Cassie Beeson
 
 <img src="https://www.dropbox.com/s/axwolqwxqudmt03/cassie7.jpg?raw=1" width="1000"> | Hello I'm Cassie. I had many Lockdown Highs; so much sleeping! Eating a lot of guilty pleasure food without anyone around to judge me. Time with my Cats, and starting the quilt project I've been intending to do for ages. Lockdown low; the worship pastor at my church is moving on to train to be a vicar, and instead of making the most of the short time we have left with him, we've been online. Goodbye zoom meetings with provide your own cakes aren't cutting the mustard. I felt that God was saying to me that he makes his joy accessible to us even through the trickiest of times. 
 
+David and Karen Stewart
+
+<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="120"> | David and Karen Stewart with Elodie and Finn.
+
 Emma and Edd Greenfield
 
 <img src="https://www.dropbox.com/s/dlz37nbq7aslqob/emma%20and%20edd.jpg?raw=1" width="600"> | Hi, we're the Greenfields, Emma, Edd and Isaac. We've spent most of lockdown chasing around Isaac who has now started to crawl! Our lockdown high has been all the time we have been able to spend together as a family! We have found not being able to see friends and family really hard and it has definitely been our lock down low.
@@ -58,7 +62,6 @@ Sandra Hall
 Sarah Williams
 
 <img src="https://www.dropbox.com/s/gqdm3sa50hhn5qf/sarah%20w.jpg?raw=1" width="2600"> | Retired vicar, a Venture Leader somewhere or other since 1986. Lockdown High: I have loved being in our house in Faversham during this spring and summer. For the past 4 years at this time of year I have been sailing with my husband Rocyn in our boat (or yacht if you’re posh). I have loved watching the plants and flowers flourishing here. I have enjoyed the gardening, picnics, cycle rides. We feel so very blessed by God. Another high was giving a Bible to my hairdresser who has always asked me God/faith questions. Lockdown Low: The hard part has been the disappointment of cancelled visits, including my brother from New Zealand. What is God saying?   God is still at work, He is still the creator, upholding His creation and producing the bounty of the harvest around us. There is so much beauty and we need to look after it, and take responsibility for our actions.
-
 
 Sid Rees
 
