@@ -17,11 +17,11 @@ Carol Stewart
 
 Cassie Beeson
 
+<img src="https://www.dropbox.com/s/axwolqwxqudmt03/cassie7.jpg?raw=1" width="1000"> | Hello I'm Cassie. I had many Lockdown Highs; so much sleeping! Eating a lot of guilty pleasure food without anyone around to judge me. Time with my Cats, and starting the quilt project I've been intending to do for ages. Lockdown low; the worship pastor at my church is moving on to train to be a vicar, and instead of making the most of the short time we have left with him, we've been online. Goodbye zoom meetings with provide your own cakes aren't cutting the mustard. I felt that God was saying to me that he makes his joy accessible to us even through the trickiest of times. 
+
 David and Karen Stewart
 
-<img src="https://www.dropbox.com/s/1hz5tkw68yv0dra/IMG-20200729-WA0027.jpg?raw=1" width="300"> | David, Karen, Elodie and Finn Stewart
-
-<img src="https://www.dropbox.com/s/axwolqwxqudmt03/cassie7.jpg?raw=1" width="1000"> | Hello I'm Cassie. I had many Lockdown Highs; so much sleeping! Eating a lot of guilty pleasure food without anyone around to judge me. Time with my Cats, and starting the quilt project I've been intending to do for ages. Lockdown low; the worship pastor at my church is moving on to train to be a vicar, and instead of making the most of the short time we have left with him, we've been online. Goodbye zoom meetings with provide your own cakes aren't cutting the mustard. I felt that God was saying to me that he makes his joy accessible to us even through the trickiest of times. 
+<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="300"> | David, Karen, Elodie and Finn Stewart
 
 Emma and Edd Greenfield
 
