@@ -21,7 +21,7 @@ Cassie Beeson
 
 David and Karen Stewart
 
-<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="300"> | David and Karen Stewart with Elodie and Finn.
+<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="150"> | David and Karen Stewart with Elodie and Finn.
 
 Emma and Edd Greenfield
 
