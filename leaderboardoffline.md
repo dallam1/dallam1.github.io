@@ -29,11 +29,11 @@ Emma and Edd Greenfield
 
 Graham and Elizabeth Smye
 
-<img src="https://www.dropbox.com/s/m4bcfaezsxuddzg/smyes.jpg?raw=1" width="1300"> | Graham and Elizabeth Smye, with Lydia and Phoebe. Our lockdown high has been Phoebe, who was born at the height of lockdown. Also, us all having more time to spend with each other. Our lockdown low has been not being able to see our extended family and friends and for Lydia not being able to go to school. What God has been saying?  Jeremiah 29.11 ‘For I know the plans I have for you, plans to prosper you and not to harm you, plans to give you hope and a future.’ For a long time this verse was a message of hope for the future. It feels like we are seeing the fulfilling of God’s promise.
+<img src="https://www.dropbox.com/s/m4bcfaezsxuddzg/smyes.jpg?raw=1" width="1400"> | Graham and Elizabeth Smye, with Lydia and Phoebe. Our lockdown high has been Phoebe, who was born at the height of lockdown. Also, us all having more time to spend with each other. Our lockdown low has been not being able to see our extended family and friends and for Lydia not being able to go to school. What God has been saying?  Jeremiah 29.11 ‘For I know the plans I have for you, plans to prosper you and not to harm you, plans to give you hope and a future.’ For a long time this verse was a message of hope for the future. It feels like we are seeing the fulfilling of God’s promise.
 
 Hattie Griggs
 
-<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="300"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
+<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="250"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
 
 Jack Bacon
 
