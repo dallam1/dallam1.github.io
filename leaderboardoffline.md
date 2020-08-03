@@ -49,7 +49,7 @@ Jenny Warrington
 
 Naomi Burns
 
-<img src="https://www.dropbox.com/s/2ycdckw1qbw17y1/naomi.jpg?raw=1" width="600"> | My lockdown high was definitely getting my first teaching job! It was something I had worked so hard for and had prayed a lot about. My lockdown low was not being able to see people for a very long time! What has God been saying? To trust in him no matter what and not to worry. Also to take the chance to slow down and rest.
+<img src="https://www.dropbox.com/s/2ycdckw1qbw17y1/naomi.jpg?raw=1" width="900"> | My lockdown high was definitely getting my first teaching job! It was something I had worked so hard for and had prayed a lot about. My lockdown low was not being able to see people for a very long time! What has God been saying? To trust in him no matter what and not to worry. Also to take the chance to slow down and rest.
 
 Ollie Greenfield
 
