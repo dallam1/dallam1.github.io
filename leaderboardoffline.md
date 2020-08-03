@@ -41,7 +41,7 @@ Jack Bacon
 
 James Hodson
 
-<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="1000"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
+<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="1200"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
 
 Jenny Warrington
 
