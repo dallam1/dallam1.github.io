@@ -29,7 +29,7 @@ Emma and Edd Greenfield
 
 Graham and Elizabeth Smye
 
-<img src="https://www.dropbox.com/s/m4bcfaezsxuddzg/smyes.jpg?raw=1" width="600"> | Graham and Elizabeth Smye, with Lydia and Phoebe. Our lockdown high has been Phoebe, who was born at the height of lockdown. Also, us all having more time to spend with each other. Our lockdown low has been not being able to see our extended family and friends and for Lydia not being able to go to school. What God has been saying?  Jeremiah 29.11 ‘For I know the plans I have for you, plans to prosper you and not to harm you, plans to give you hope and a future.’ For a long time this verse was a message of hope for the future. It feels like we are seeing the fulfilling of God’s promise.
+<img src="https://www.dropbox.com/s/m4bcfaezsxuddzg/smyes.jpg?raw=1" width="1200"> | Graham and Elizabeth Smye, with Lydia and Phoebe. Our lockdown high has been Phoebe, who was born at the height of lockdown. Also, us all having more time to spend with each other. Our lockdown low has been not being able to see our extended family and friends and for Lydia not being able to go to school. What God has been saying?  Jeremiah 29.11 ‘For I know the plans I have for you, plans to prosper you and not to harm you, plans to give you hope and a future.’ For a long time this verse was a message of hope for the future. It feels like we are seeing the fulfilling of God’s promise.
 
 Hattie Griggs
 
@@ -41,7 +41,7 @@ Jack Bacon
 
 James Hodson
 
-<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="600"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
+<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="900"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
 
 Jenny Warrington
 
