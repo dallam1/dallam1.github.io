@@ -21,23 +21,35 @@ Cassie Beeson
 
 David and Karen Stewart
 
-<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="120"> | David and Karen Stewart with Elodie and Finn.
+<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="600"> | David and Karen Stewart, Elodie and Finn. Lockdown highs: more family time, getting to know neighbours better, Liverpool winning the league! Lockdown lows: Elodie’s birthday party being cancelled, missed holidays and family visits, not seeing our friends at church on a Sunday morning.
 
 Emma and Edd Greenfield
 
 <img src="https://www.dropbox.com/s/dlz37nbq7aslqob/emma%20and%20edd.jpg?raw=1" width="600"> | Hi, we're the Greenfields, Emma, Edd and Isaac. We've spent most of lockdown chasing around Isaac who has now started to crawl! Our lockdown high has been all the time we have been able to spend together as a family! We have found not being able to see friends and family really hard and it has definitely been our lock down low.
 
+Graham and Elizabeth Smye
+
+<img src="https://www.dropbox.com/s/m4bcfaezsxuddzg/smyes.jpg?raw=1" width="1400"> | Graham and Elizabeth Smye, with Lydia and Phoebe. Our lockdown high has been Phoebe, who was born at the height of lockdown. Also, us all having more time to spend with each other. Our lockdown low has been not being able to see our extended family and friends and for Lydia not being able to go to school. What God has been saying?  Jeremiah 29.11 ‘For I know the plans I have for you, plans to prosper you and not to harm you, plans to give you hope and a future.’ For a long time this verse was a message of hope for the future. It feels like we are seeing the fulfilling of God’s promise.
+
 Hattie Griggs
 
-<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="200"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
+<img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="250"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
 
 Jack Bacon
 
 <img src="https://www.dropbox.com/s/gr7zot5v5pitows/jack.jpg?raw=1" width="2400"> | Hi, my name is Jack (on the right in the photo) and I’m thrilled to be helping out with Dallam this year, odd as it may be! I’ve been part of this Venture for a decade now, first as a member, then as a helper and now as a leader. I’m really looking forward to getting to know God with everyone in a different way this year. In my day job I work in communications for the Diocese of Leeds, who support lots of churches in West Yorkshire and the Dales. My lockdown high has been helping out with my church’s music in this time, providing drums for songs we have recorded and put together. It’s been great fun, and helped me improve my drumming, which I’ve really enjoyed! My lockdown low has been the inability to see people- I’m quite a social person, so not being able to hang out with my friends in the nice weather has been a bit demoralising. What is God saying? The Bible passage that has really spoken to me during this time has been Luke 4: 1-13, about Jesus in the wilderness. I’ll be talking about why this week!
 
+James Hodson
+
+<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="1200"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
+
 Jenny Warrington
 
 <img src="https://www.dropbox.com/s/3k6iw2ewpva64bq/jenny.jpg?raw=1" width="800"> | I’m Jenny Warrington and I became the curate at All Saints Church in Chatham last October having been a GP for 25 years. Lockdown high: Really enjoyed getting to know people on video calls that I’ve not talked to in depth before. Lockdown low: Not seeing our son and daughter and especially our new grandson. Missing hugs.
+
+Naomi Burns
+
+<img src="https://www.dropbox.com/s/2ycdckw1qbw17y1/naomi.jpg?raw=1" width="850"> | My lockdown high was definitely getting my first teaching job! It was something I had worked so hard for and had prayed a lot about. My lockdown low was not being able to see people for a very long time! What has God been saying? To trust in him no matter what and not to worry. Also to take the chance to slow down and rest.
 
 Ollie Greenfield
 
@@ -53,7 +65,7 @@ Rachel Gannon
 
 Ruth Stewart
 
-<img src="https://www.dropbox.com/s/zf1t4owri13jsv8/ruth2.jpg?raw=1" width="1500"> | Hello I'm Ruth Stewart (sister of David and Karen, aunt to Elodie and Finn, and daughter of Carol). I've been involved in the Venture for a very long time and love it a lot. Ventures were crucial to my faith when I was younger, and they’ve always been a highlight of my summer.  I consider many of the others involved my extended family! In between times I'm a teacher in Hounslow and live in Twickenham. I teach French and Spanish and run D of E at my school. Lockdown high: A slower pace of life, lots of time for gardening, reading and TV – Lockdown low:
+<img src="https://www.dropbox.com/s/zf1t4owri13jsv8/ruth2.jpg?raw=1" width="2000"> | Hello I'm Ruth Stewart (sister of David and Karen, aunt to Elodie and Finn, and daughter of Carol). I've been involved in the Venture for a very long time and love it a lot. Ventures were crucial to my faith when I was younger, and they’ve always been a highlight of my summer.  I consider many of the others involved my extended family! Lockdown high: A slower pace of life, lots of time for going out for walks, gardening, reading and TV, getting to catch up on all the Marvel films, and building friendships via video calls and pavement cuppas. Lockdown low: Online teaching isn’t great and I got a bit fed up of spending so much time on my computer. I didn’t love the reduced contact with people, and having to wait ages to see my parents and sister up in Ilkley. What God has been saying?  Rest in me, it’s really Ok to slow down and be still.
 
 Sandra Hall
 
@@ -66,7 +78,4 @@ Sarah Williams
 Sid Rees
 
 <img src="https://www.dropbox.com/s/phgb1ouw1w9zg9n/sid.jpg?raw=1" width="3000"> | Hi, I’m Sid, and I work for a Christian Charity who support Persecuted Christians WorldWide. I used to teach Geography. I like to spend time outdoors in God's creation and my happy place is the top of a mountain or on a gently flowing river. Lockdown for me meant shifting work from a bustling office to a very quiet study with just the cat for company. It also led to the postponement of some exciting expeditions. My lockdown low was the feeling of isolation and not being able to connect with people face-to-face daily, having to limit interactions to the computer. My lockdown high was getting to reflect on the busyness of life and taking time to slow down and potter, learning to appreciate God's rhythms and the necessity for Sabbath. I’ve been able to create a flower bed in my garden. I have also been very grateful for the development of technology so that I can connect with Friends and Family no matter where they are in the world.  
-
-
-
 
