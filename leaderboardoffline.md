@@ -21,7 +21,7 @@ Cassie Beeson
 
 David and Karen Stewart
 
-<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="120"> | David and Karen Stewart with Elodie and Finn.
+<img src="https://www.dropbox.com/s/12fuv7x1hq3hcpa/IMG-20200729-WA0027x.jpg?raw=1" width="120"> | David and Karen Stewart, Elodie and Finn. Lockdown highs: more family time, getting to know neighbours better, Liverpool winning the league! Lockdown lows: Elodie’s birthday party being cancelled, missed holidays and family visits, not seeing our friends at church on a Sunday morning.
 
 Emma and Edd Greenfield
 
