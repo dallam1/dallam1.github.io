@@ -27,6 +27,10 @@ Emma and Edd Greenfield
 
 <img src="https://www.dropbox.com/s/dlz37nbq7aslqob/emma%20and%20edd.jpg?raw=1" width="600"> | Hi, we're the Greenfields, Emma, Edd and Isaac. We've spent most of lockdown chasing around Isaac who has now started to crawl! Our lockdown high has been all the time we have been able to spend together as a family! We have found not being able to see friends and family really hard and it has definitely been our lock down low.
 
+Graham and Elizabeth Smye
+
+<img src="https://www.dropbox.com/s/m4bcfaezsxuddzg/smyes.jpg?raw=1" width="600"> | Graham and Elizabeth Smye, with Lydia and Phoebe. Our lockdown high has been Phoebe, who was born at the height of lockdown. Also, us all having more time to spend with each other. Our lockdown low has been not being able to see our extended family and friends and for Lydia not being able to go to school. What God has been saying?  Jeremiah 29.11 ‘For I know the plans I have for you, plans to prosper you and not to harm you, plans to give you hope and a future.’ For a long time this verse was a message of hope for the future. It feels like we are seeing the fulfilling of God’s promise.
+
 Hattie Griggs
 
 <img src="https://www.dropbox.com/s/65oii1pe99pqq0s/hattie.jpg?raw=1" width="200"> | Lockdown high: slowing down and being thankful for little things. Lockdown low: not being able to hug loved ones.
