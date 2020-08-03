@@ -41,11 +41,15 @@ Jack Bacon
 
 James Hodson
 
-<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="900"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
+<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="1000"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
 
 Jenny Warrington
 
 <img src="https://www.dropbox.com/s/3k6iw2ewpva64bq/jenny.jpg?raw=1" width="800"> | I’m Jenny Warrington and I became the curate at All Saints Church in Chatham last October having been a GP for 25 years. Lockdown high: Really enjoyed getting to know people on video calls that I’ve not talked to in depth before. Lockdown low: Not seeing our son and daughter and especially our new grandson. Missing hugs.
+
+Naomi Burns
+
+<img src="https://www.dropbox.com/s/2ycdckw1qbw17y1/naomi.jpg?raw=1" width="600"> | My lockdown high was definitely getting my first teaching job! It was something I had worked so hard for and had prayed a lot about. My lockdown low was not being able to see people for a very long time! What has God been saying? To trust in him no matter what and not to worry. Also to take the chance to slow down and rest.
 
 Ollie Greenfield
 
