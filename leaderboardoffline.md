@@ -39,6 +39,10 @@ Jack Bacon
 
 <img src="https://www.dropbox.com/s/gr7zot5v5pitows/jack.jpg?raw=1" width="2400"> | Hi, my name is Jack (on the right in the photo) and I’m thrilled to be helping out with Dallam this year, odd as it may be! I’ve been part of this Venture for a decade now, first as a member, then as a helper and now as a leader. I’m really looking forward to getting to know God with everyone in a different way this year. In my day job I work in communications for the Diocese of Leeds, who support lots of churches in West Yorkshire and the Dales. My lockdown high has been helping out with my church’s music in this time, providing drums for songs we have recorded and put together. It’s been great fun, and helped me improve my drumming, which I’ve really enjoyed! My lockdown low has been the inability to see people- I’m quite a social person, so not being able to hang out with my friends in the nice weather has been a bit demoralising. What is God saying? The Bible passage that has really spoken to me during this time has been Luke 4: 1-13, about Jesus in the wilderness. I’ll be talking about why this week!
 
+James Hodson
+
+<img src="https://www.dropbox.com/s/df8270jowoxcdcs/james%20hodson.jpg?raw=1" width="600"> | Lockdown Low: Missing my friends from University and not being able to see them at all… my holiday and a summer research programme being cancelled ☹ Lockdown High: Getting to spend unexpected time with my family which otherwise would have been a lot less likely to occur. What God is saying: Trust God to have this handled and live in the moment don’t wish to be elsewhere. Appreciate the little things we still have… or even the very large things like the Yorkshire moors!
+
 Jenny Warrington
 
 <img src="https://www.dropbox.com/s/3k6iw2ewpva64bq/jenny.jpg?raw=1" width="800"> | I’m Jenny Warrington and I became the curate at All Saints Church in Chatham last October having been a GP for 25 years. Lockdown high: Really enjoyed getting to know people on video calls that I’ve not talked to in depth before. Lockdown low: Not seeing our son and daughter and especially our new grandson. Missing hugs.
