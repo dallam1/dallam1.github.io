@@ -53,7 +53,7 @@ Rachel Gannon
 
 Ruth Stewart
 
-<img src="https://www.dropbox.com/s/zf1t4owri13jsv8/ruth2.jpg?raw=1" width="1500"> | Hello I'm Ruth Stewart (sister of David and Karen, aunt to Elodie and Finn, and daughter of Carol). I've been involved in the Venture for a very long time and love it a lot. Ventures were crucial to my faith when I was younger, and they’ve always been a highlight of my summer.  I consider many of the others involved my extended family! In between times I'm a teacher in Hounslow and live in Twickenham. I teach French and Spanish and run D of E at my school. Lockdown high: A slower pace of life, lots of time for gardening, reading and TV – Lockdown low:
+<img src="https://www.dropbox.com/s/zf1t4owri13jsv8/ruth2.jpg?raw=1" width="1200"> | Hello I'm Ruth Stewart (sister of David and Karen, aunt to Elodie and Finn, and daughter of Carol). I've been involved in the Venture for a very long time and love it a lot. Ventures were crucial to my faith when I was younger, and they’ve always been a highlight of my summer.  I consider many of the others involved my extended family! Lockdown high: A slower pace of life, lots of time for going out for walks, gardening, reading and TV, getting to catch up on all the Marvel films, and building friendships via video calls and pavement cuppas. Lockdown low: Online teaching isn’t great and I got a bit fed up of spending so much time on my computer. I didn’t love the reduced contact with people, and having to wait ages to see my parents and sister up in Ilkley. What God has been saying?  Rest in me, it’s really Ok to slow down and be still.
 
 Sandra Hall
 
