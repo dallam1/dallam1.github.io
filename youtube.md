@@ -4,7 +4,7 @@
 
 # Get God
 
-We'll shortly be uploading content for Dallam Wherever You Are...
+[Tuesday Get God](https://youtu.be/urVKH86K6Po)
 
 # DallamDale
 
