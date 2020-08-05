@@ -6,11 +6,15 @@
 
 [Tuesday Get God](https://youtu.be/urVKH86K6Po)
 
+[Wednesday Get God](https://youtu.be/4MS8IdJDd40)
+
 # DallamDale
 
 Take a look right here at the trailer for [DallamDale Season 3](https://youtu.be/_WT2P0dGVg4)
 
-DallamDale Season 3 Episode 1 - Coming Soon
+[DallamDale Season 3 Episode 1](https://youtu.be/LKlirWFeMH4)
+
+[DallamDale Season 3 Episode 2](https://youtu.be/A1QLwCfMnhU)
 
 ...and do enjoy some vintage DallamDale featuring Holly and Ivy from 2018 and 2019:
 
