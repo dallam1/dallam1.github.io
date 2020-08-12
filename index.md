@@ -2,6 +2,10 @@
 
 ## Dallam Wherever You Are
 
+### Update 12th August 2020
+
+We had a brilliant time on Dallam Wherever You Are last week; it was fantastic to see so many new faces to Dallam as well. We don't yet know what will be happening next summer, or even be in a position to have any confirmed dates for next year; once we do, we will be in touch.
+
 ### Meet Jesus; see God!
 
 <img src="https://www.dropbox.com/s/j9df07rg2zf867w/logo%20idea%20v3x.jpg?raw=1" width="600" align="center">
